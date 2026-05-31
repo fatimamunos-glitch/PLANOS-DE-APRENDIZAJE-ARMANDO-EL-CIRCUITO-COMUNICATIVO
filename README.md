@@ -1,0 +1,2 @@
+# PLANOS-DE-APRENDIZAJE-ARMANDO-EL-CIRCUITO-COMUNICATIVO
+Repositorio para plano de aprendizaje 
